@@ -8,7 +8,6 @@ In addition to my love for New England, I also love exploring outside of it thro
 
 I hope that this helped you learn a little more about me! 
 
-![Me in Greece!](https://1drv.ms/u/c/89c46a2d603079d5/EXrttoIGgghNg3xVXyPUsx4BIiw9-nSDgYXivfzfbk1Sew?e=2gOl7e)
-
+![Me in Greece!](https://drive.google.com/file/d/1gM5y3KG_qsXFNpae76NQTl55OYf0cSwH/view?usp=sharing)
 
 
