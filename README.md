@@ -6,7 +6,9 @@ For a little background on me, I was born and raised in the suburbs of Boston, a
 
 In addition to my love for New England, I also love exploring outside of it through traveling. I have been lucky enough to been to sixteen countries across three continents. Some of my favorites include Italy, Greece, Mexico, and Cambodia. My goal before I turn thirty is to see thirty countries. I hope to accomplish this goal through study abroad, particularly in Europe during my Junior Year! 
 
-I hope that this helped you learn a little more about me!
+I hope that this helped you learn a little more about me! 
+
+![Me in Greece!](https://1drv.ms/u/c/89c46a2d603079d5/EXrttoIGgghNg3xVXyPUsx4BIiw9-nSDgYXivfzfbk1Sew?e=2gOl7e)
 
 
 
